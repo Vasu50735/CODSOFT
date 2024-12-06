@@ -1,2 +1,2 @@
 # CODSOFT
-For online internship
+For online internship that I have been selected.
